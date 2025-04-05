@@ -1,5 +1,3 @@
-![1000123412](https://github.com/user-attachments/assets/3a40e24e-56dd-4821-9a61-ef004fb798ed)
-
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/marner-16)ㅤㅤ[pronouns.cc](https://pronouns.cc/@angelust)
 ㅤㅤㅤ
 
