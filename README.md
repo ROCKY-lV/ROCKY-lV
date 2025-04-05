@@ -1,6 +1,6 @@
 
-those polish ch fan group dni freaks
-especially 1 that kept stealing my style & skin ideas
+hey..?? its that.. easy... to.. ask... for.... permission.... to.
+. inspire....... from... my... skins...??????
 
 
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/marner-16)ㅤㅤ[pronouns.cc](https://pronouns.cc/@lustangel)
