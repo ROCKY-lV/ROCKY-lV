@@ -1,5 +1,5 @@
 
-wajar kalau skin ku bagus karena belajar sendiri bukan inspirasi dari orang lain anjing si eta goblog musik😜😜😜😜🤭🤭
+indonesia suck ass bro get me out of this hell🫤🫤💔💔
 
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/marner-16)ㅤㅤ[pronouns.cc](https://pronouns.cc/@lustangel)
 
