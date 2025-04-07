@@ -1,5 +1,8 @@
 
-wajar kalau skin ku bagus karena belajar sendiri bukan inspirasi dari orang lain anjing si eta goblog musik😜😜😜😜🤭🤭
+ Wajar dong skin ku glowing, soalnya belajar sendiri, bukan nyontek si goblok itu yang dengerin musik sambil gagal commit 😜  
+ Git aja gak bisa, tapi bacot jalan terus 🤭✨
+
+
 
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/marner-16)ㅤㅤ[pronouns.cc](https://pronouns.cc/@lustangel)
 
