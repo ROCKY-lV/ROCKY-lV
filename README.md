@@ -1,5 +1,6 @@
 
 indonesia suck ass bro get me out of this hell🫤🫤💔💔
+can the ch indonesian fandom stop normalizing the soviet union aswell as n*zis... sdm rendah
 
 ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/marner-16)ㅤㅤ[pronouns.cc](https://pronouns.cc/@lustangel)
 
