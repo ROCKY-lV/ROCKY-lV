@@ -1,6 +1,6 @@
 
 
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/tsokkur)ㅤㅤ[pronouns.cc](https://pronouns.cc/@lustangel)
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/tsokkur)ㅤㅤ[pronouns.cc](https://pronouns.cc/@finland)
 
 ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=hooligans&color=3E2319)
 
