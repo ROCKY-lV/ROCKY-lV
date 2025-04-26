@@ -1,10 +1,12 @@
 
 
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/tsokkur)ㅤㅤ[pronouns.cc](https://pronouns.cc/@sad)
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/abundantlakes)ㅤㅤ[pronouns.cc](https://pronouns.cc/@finland)
 
-ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=hooligans&color=3E2319)
+tell me how to use ata & neospring..
 
-<img src="https://files.catbox.moe/4x6aj6.gif" width="300">
+ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=sexy_people&color=3141B8)
+
+<img src="https://files.catbox.moe/p7snbu.gif" width="300">
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zbblnlr2w65oeixrz3ikwwf7xq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
