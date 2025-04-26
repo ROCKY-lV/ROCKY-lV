@@ -1,6 +1,6 @@
 
 
-ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/abundantlakes)ㅤㅤ[pronouns.cc](https://pronouns.cc/@finland)
+ㅤㅤㅤㅤㅤ[rentry](https://rentry.co/finlandia)ㅤㅤ[pronouns.cc](https://pronouns.cc/@finland)
 
 tell me how to use ata & neospring..
 
