@@ -4,9 +4,10 @@
 
 ㅤㅤ ㅤㅤ[tetratto](https://tetratto.com/@hetalia) ㅤㅤ[atabook](https://finland.atabook.org)
 
-ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=sexy_people&color=3141B8)
+ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=sexy_people&color=270F18)
 
-ILY SINAIRMAK
+ㅤㅤㅤㅤㅤILY SINAIRMAK
+
 <img src="https://files.catbox.moe/xh81gm.gif" width="300">
 
 
