@@ -1,6 +1,6 @@
 
 
-ㅤ[rentry](https://rentry.co/swuomi)ㅤ[pronouns.cc](https://pronouns.cc/@finland)ㅤ[neospring](https://neospring.org/@finland)
+ㅤ[rentry](https://rentry.co/swuomi)ㅤ[pronouns.cc](https://pronouns.cc/@finland)ㅤ[neospring](https://neospring.org/@axispower)
 
 ㅤㅤ ㅤㅤ[tetratto](https://tetratto.com/@lumi) ㅤㅤ[atabook](https://finland.atabook.org)
 
