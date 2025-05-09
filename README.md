@@ -2,7 +2,7 @@
 
 ㅤ[rentry](https://rentry.co/swuomi)ㅤ[pronouns.cc](https://pronouns.cc/@finland)ㅤ[neospring](https://neospring.org/@finland)
 
-ㅤㅤ ㅤㅤ[tetratto](https://tetratto.com/@hetalia) ㅤㅤ[atabook](https://finland.atabook.org)
+ㅤㅤ ㅤㅤ[tetratto](https://tetratto.com/@lumi) ㅤㅤ[atabook](https://finland.atabook.org)
 
 ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=femboys&color=BFCAFC)
 
