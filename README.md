@@ -4,9 +4,7 @@
 
 
 
-ㅤ[rentry](https://rentry.co/swuomi)ㅤ[pronouns.cc](https://pronouns.cc/@finland)ㅤ[neospring](https://neospring.org/@axispower)
-
-ㅤㅤ ㅤㅤ[tetratto](https://tetratto.com/@lumi) ㅤㅤ[atabook](https://finland.atabook.org)
+ㅤhi links are wip
 
 ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=femboys&color=7B7168)
 
