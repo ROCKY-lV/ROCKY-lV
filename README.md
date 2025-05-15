@@ -1,10 +1,7 @@
+ㅤㅤ[tetratto](https://tetratto.com/@cannibal)ㅤㅤ[rentry](https://rentry.co/meatgrind)ㅤㅤ[prns.cc](https://pronouns.cc/@psychopathy)
 
 
 
-
-
-
-ㅤhi links are wip
 
 ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=femboys&color=7B7168)
 
