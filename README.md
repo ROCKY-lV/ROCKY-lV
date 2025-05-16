@@ -3,8 +3,9 @@
 
 
 
-ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=femboys&color=7B7168)
+ㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lustangel&label=femboys&color=000000)
 
+![1000156449](https://github.com/user-attachments/assets/afd28f8e-af7c-472a-acfd-c95273cc66a1)
 
 https://github.com/user-attachments/assets/3a193d36-437d-4759-95c6-42b0f16b0d8c
 
