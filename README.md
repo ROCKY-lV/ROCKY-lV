@@ -1,4 +1,4 @@
-ㅤㅤ[tetratto](https://tetratto.com/@cannibal)ㅤㅤ[rentry](https://rentry.co/cannibality)ㅤㅤ[prns.cc](https://pronouns.cc/@psychopathy)
+ㅤㅤ[tetratto](https://tetratto.com/@cannibal)ㅤㅤ[rentry](https://rentry.co/sovfin)ㅤㅤ[prns.cc](https://pronouns.cc/@finland)
 
 
 
