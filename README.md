@@ -1,4 +1,4 @@
-ㅤㅤ[tetratto](https://tetratto.com/@cannibal)ㅤㅤ[rentry](https://rentry.co/dolph)ㅤㅤ[prns.cc](https://pronouns.cc/@dolph)
+ㅤㅤ[tetratto](https://tetratto.com/@actor)ㅤㅤ[rentry](https://rentry.co/dolph)ㅤㅤ[prns.cc](https://pronouns.cc/@dolph)
 
 
 
