@@ -1,0 +1,4 @@
+langchain>=0.1.0
+openai>=1.0.0
+whisper-timestamped>=1.0.0
+rich>=13.0.0
