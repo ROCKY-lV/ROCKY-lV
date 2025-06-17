@@ -1,13 +1,5 @@
 ㅤㅤ[tetratto](https://tetratto.com/@xan)ㅤㅤ[rentry](https://rentry.co/dolph)ㅤㅤ[prns.cc](https://pronouns.cc/@dolph)
 
-carnaI/
-├── src/          # Main source code
-├── tests/        # Unit and integration tests
-├── docs/         # Documentation
-├── examples/     # Usage examples
-├── .gitignore
-├── README.md
-├── pyproject.toml  # Modern Python project config
 
 # Contribution Ideas for carnaI
 
