@@ -1,3 +1,7 @@
+> 🚫 **please dont fork this repo.**  
+> this is my personal space, not a coding project. its just a directory of my social links for friends & followers.  
+> if you like how it looks, thats cool.. but dont fork or remix it. respect personal boundaries, thanks!
+
 ㅤㅤ[tetratto](https://tetratto.com/@xan)ㅤㅤ[rentry](https://rentry.co/dolph)ㅤㅤ[prns.cc](https://pronouns.cc/@dolph)
 
 
