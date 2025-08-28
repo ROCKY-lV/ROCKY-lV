@@ -2,10 +2,7 @@
 # ❤️ I LOVE
 
 | 🎬 Dolph Lundgren | 📜 Soviet–Finnish Relations |
-|-------------------|-----------------------------|
-| Action movie legend, chemist, martial artist | Winter War, Continuation War, Cold War treaties |
-| *Rocky IV*, *Universal Soldier*, *Showdown In Little Tokyo* | Key events: 1939–40 Winter War, Moscow Peace Treaty, YYA Treaty |
-| 80s action icon | Archival documents, maps, propaganda posters |
+|-------------------|-----------------------------| 
 | [Dolph Lundgren](https://en.m.wikipedia.org/wiki/Dolph_Lundgren) | [Finland–Soviet Union Relations](https://en.m.wikipedia.org/wiki/Category:Finland%E2%80%93Soviet_Union_relations) |
 
 
