@@ -1,9 +1,5 @@
-
-# ❤️ I LOVE
-
-| 🎬 Dolph Lundgren | 📜 Soviet–Finnish Relations |
-|-------------------|-----------------------------| 
-| [Dolph Lundgren](https://en.m.wikipedia.org/wiki/Dolph_Lundgren) | [Finland–Soviet Union Relations](https://en.m.wikipedia.org/wiki/Category:Finland%E2%80%93Soviet_Union_relations) |
+ᮘᮩᮛᮩᮙ᮪ ᮜᮄᮔ᮪ ᮊᮝᮔᮤ, ᮒᮕᮤ ᮌᮨᮒᮤᮂ ᮏᮜ᮪ᮙ ᮔᮥ ᮌᮩᮞ᮪ ᮒᮥᮙ᮪ᮕᮂ.
+ᮔᮥ ᮘᮧᮓᮞ᮪ ᮜᮄᮔ᮪ ᮊᮞᮥᮎᮤᮃᮔ᮪, ᮒᮕᮤ ᮊᮕᮧᮜᮧᮞᮔ᮪ ᮏᮜ᮪ᮙ-ᮏᮜ᮪ᮙ ᮔᮥ ᮒᮨᮛᮥᮞ᮪ ᮓᮤᮈᮊ᮪ᮞ᮪ᮕᮣᮧᮄᮒᮞᮤ.
 
 
 https://github.com/user-attachments/assets/130cf500-7d3a-4920-b2b7-dfcab41fffc3
