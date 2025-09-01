@@ -1,5 +1,4 @@
-ᮘᮩᮛᮩᮙ᮪ ᮜᮄᮔ᮪ ᮊᮝᮔᮤ, ᮒᮕᮤ ᮌᮨᮒᮤᮂ ᮏᮜ᮪ᮙ ᮔᮥ ᮌᮩᮞ᮪ ᮒᮥᮙ᮪ᮕᮂ.
-ᮔᮥ ᮘᮧᮓᮞ᮪ ᮜᮄᮔ᮪ ᮊᮞᮥᮎᮤᮃᮔ᮪, ᮒᮕᮤ ᮊᮕᮧᮜᮧᮞᮔ᮪ ᮏᮜ᮪ᮙ-ᮏᮜ᮪ᮙ ᮔᮥ ᮒᮨᮛᮥᮞ᮪ ᮓᮤᮈᮊ᮪ᮞ᮪ᮕᮣᮧᮄᮒᮞᮤ.
+![1000189645](https://github.com/user-attachments/assets/86306e94-8880-47d0-b7f4-e02eeea79f56)
 
 
 https://github.com/user-attachments/assets/130cf500-7d3a-4920-b2b7-dfcab41fffc3
